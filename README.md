@@ -1,4 +1,4 @@
-# One-Poster-Wonder
+# One Poster Wonder 💭
 
 A daily design challenge to improve your Adobe Illustrator skills by creating unique and fun posters every day! The goal is to push my creativity, learn new techniques, and build a diverse portfolio of designs over time.
 
